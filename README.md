@@ -1,4 +1,4 @@
-<img align="center" src="https://i.ibb.co/xhVpFym/IMG-3779.png" width="50%">
+<img align="center" src="https://i.ibb.co/xhVpFym/IMG-3779.png" width="100%">
 
 
 <h1 align="center">heylo im weedie</h1>
