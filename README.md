@@ -3,6 +3,4 @@
 <h3 align="center">Your favourite tech nerd, full time PC gamer, photographer and programmer :) Im wayyy too addicted to tech tbh lol...</h3>
 <br>
 
-
-
 <h3 align="center">my work doe be down below... go look</h3>
